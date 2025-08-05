@@ -40,5 +40,11 @@ She also talk about the three sources:preconditioning, sensation and natural acc
 causemic group members talk about the some activities which organised in this club. like - apex. They also shows their talent in singing and poetry.
 Also give knowledge how we purchase our laptop.like- how to check RAM Space and screen inches.
 
-
+# Day5
+# from 9.30am to 10.30am
+ lecture by prof.Manjot kaur in ME semi.hall.She introduced the syllabus and division of marks in English communication.She also discussed about the different sections. like - theory and practical.
+ # from 10.30am to 11.30am
+ lecture of BEEE by Prof.Harpreet kaur. Firstly, she talk about why this subject is used in CSE and perform one small activity to join a circuit with some electric things which are present in our class like -AC,fans,blubs, projecter etc.After that,she discussed about the resistance and solved one numerical.
+ # from 11.30am to 12.30pm
+ lecture of mathematics by prof.Gagandeep kaur in ME semi.hall. Although she is a mathematics teacher, she teachs us about moral values of life and society.
 

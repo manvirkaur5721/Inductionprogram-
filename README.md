@@ -1,4 +1,5 @@
 # Inductionprogram at GNE college (2025-26)
+To conclude, actually I am a gap year student. It helps me alot because it works as a brige for me.In addition, I was totally distracted from my studies but this induction program reconnect me with my studies. So, I am really thankful to you.
 # DAY 1 
 gurudwara sahib from 8:30AM to 9:30AM with japji sahib, chopai sahib and kirtan 
 refreshment (tea and snacks) 9:30AM To 10:00AM 
@@ -48,3 +49,12 @@ Also give knowledge how we purchase our laptop.like- how to check RAM Space and 
  # from 11.30am to 12.30pm
  lecture of mathematics by prof.Gagandeep kaur in ME semi.hall. Although she is a mathematics teacher, she teachs us about moral values of life and society.
 
+# Day6
+# from 9.30 am to 10.30am in workshop.
+This lecture is conducted by our seniors(p2p). Firstly,they familier us to our previous chapter and dissused about the data types, variables,some basic concepts.
+# from 10.30am to 11.30am
+this lecture is conducted by prof.jaswant singh.He explained the some basic knowledge of CSE.
+# In auditorium 
+Firstly, our speaker is Gurcharan Singh Grewal.He is the member of Gndec and talk about the construction of this College.He also discussed about his journey because he was also the student of this college and now,he is the member.
+# next speaker is dr.lakhwir singh khana
+He is the incharge of CML . Initially, he explained the center of multi faceted program how we can develop our skills and knowledge.Apart from that, he discussed about the swayam nptel because it is the online platform where we can complete our minor courses .

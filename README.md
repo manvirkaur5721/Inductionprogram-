@@ -1,5 +1,5 @@
 # Inductionprogram at GNE college (2025-26)
-To conclude, actually I am a gap year student. It helps me alot because it works as a brige for me.In addition, I was totally distracted from my studies but this induction program reconnect me with my studies. So, I am really thankful to you.
+To conclude, I am a gap year student. It helps  alot because it works as a brige for me.In addition, I was totally distracted from my studies but this induction program reconnect me with my studies. So, I am really thankful to Gndec to conduct this program.
 # DAY 1 
 gurudwara sahib from 8:30AM to 9:30AM with japji sahib, chopai sahib and kirtan 
 refreshment (tea and snacks) 9:30AM To 10:00AM 
@@ -58,3 +58,11 @@ this lecture is conducted by prof.jaswant singh.He explained the some basic know
 Firstly, our speaker is Gurcharan Singh Grewal.He is the member of Gndec and talk about the construction of this College.He also discussed about his journey because he was also the student of this college and now,he is the member.
 # next speaker is dr.lakhwir singh khana
 He is the incharge of CML . Initially, he explained the center of multi faceted program how we can develop our skills and knowledge.Apart from that, he discussed about the swayam nptel because it is the online platform where we can complete our minor courses .
+
+# Day7
+# In auditorium 
+Our first lecture conducted by Dr.Parmimder Singh. He gives us a brief knowledge of whole GNDEC Like -girls and boys hostel,about mess, all facilities and any another things.Apart from that he also discussed about the NSS club which is the welfare club where students can enroll in different activities. Plantation, Blood donation camp are the example of it.
+# Second lecture 
+It is conducted by Dr.Amit Kamra who is the incharge of DMC (Digital Marketing Club).He also gives a brief information about this club because it helps us to increase the knowledge of video and photo editing. 
+# Third lecture 
+Dr. Randhir sir gives knowledge on the conduct of examination.He discussed about the marking scheme of all subjects either it is theorical or practical.Additionaly,he also gives brief information of guru website where student can submit their assignments.

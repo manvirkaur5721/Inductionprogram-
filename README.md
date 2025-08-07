@@ -1,6 +1,10 @@
 # Inductionprogram at GNE college (2025-26)
-To conclude, I am a gap year student. It helps  alot because it works as a brige for me.In addition, I was totally distracted from my studies but this induction program reconnect me with my studies. So, I am really thankful to Gndec to conduct this program.
-# DAY 1 
+To conclude, I am a gap year student. Induction program helps me  alot because it works as a brige . I was totally distracted from my studies but this induction program reconnect me with my studies. So, I am really thankful to Gndec to conduct this program.
+# DAY 1 !
+
+
+![WhatsApp Image 2025-08-07 at 7 04 04 PM](https://github.com/user-attachments/assets/80ff23e6-bdaa-4982-a1b5-54e2f6bffbde)
+
 gurudwara sahib from 8:30AM to 9:30AM with japji sahib, chopai sahib and kirtan 
 refreshment (tea and snacks) 9:30AM To 10:00AM 
 Auditorium from 10:00AM to 2PM 
@@ -22,8 +26,12 @@ He gives knowledge about food which one is good for health or not and discussed 
 Activity on GitHub and give information about Satya scholarship.
 
 # Day 3
-# In Auditorium 
-9 AM to 11AM , Lecture by Dr.Jaswinder Singh,This lecture is very interesting.He is expert in maths and science. While he knows theroritical,gives some information about maths and science through practical and some praticals are attached with GOD.He also discussed about the 206 bones of our body which is divided into different organs.
+# In Auditorium ![WhatsApp Image 2025-08-07 at 7 04 03 PM (1)](https://github.com/user-attachments/assets/b0f9694d-0841-4b27-bb97-d351e0dbe19f)
+
+
+
+9 AM to 11AM , Lecture by Dr.Jaswinder Singh,This lecture is very interesting.
+he is expert in maths and science. While he knows theroritical,gives some information about maths and science through practical and some praticals are attached with GOD.He also discussed about the 206 bones of our body which is divided into different organs.
 # In Auditorium 
 11AM TO 1PM, Lecture by Priya Darshni mam,She gives information about the Universal Human Values (UHV).She dissused about the right understanding, relationship and physical facility. She tells us how we spend right time to our day to day activities 
 
@@ -34,7 +42,12 @@ She discussed about the basis topic of chemistry like- atom, molecule and elemen
 They give some basis knowledge about the programming,compiler,binary language, algorithm and pseudocodes
 They also give knowledge about the decision making problems with some examples.
 # BREAK From 11.30 to 12.30 
-# In auditorium, lecture by Dr.priya darshine mam from 12.30pm to 2.30pm
+# In auditorium, lecture by Dr.priya darshine mam ![WhatsApp Image 2025-08-07 at 7 04 04 PM (1)](https://github.com/user-attachments/assets/ada89858-f7b0-4477-b6ae-24f659543cf4)
+
+
+
+
+
 First she give brief introduction about the previous lecture after that she dissused about the difference of body and self needs.
 She also talk about the three sources:preconditioning, sensation and natural acceptance.
 # In Auditorium,dissused about the causemic club from 2.30 pm to 3.30 pm 
